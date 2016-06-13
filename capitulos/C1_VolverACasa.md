@@ -23,3 +23,22 @@ La sonrisa afloró en el interlocutor, conciliador.
 - Este caso ha perdido ya la atención de los medios... Será más tranquilo en ese sentido, y a la que será su nueva compañera necesita a alguien más experimentado a su lado. Creo que es un buen punto desde el cual arrancar de nuevo. Si encuentra cualquier complicación, sabe donde encontrarme. Cuento con usted.
 
 Moore asintió para después ponerse de pie y estrechar la mano al que abandonaría la sala segundos después. Comenzaba el viaje de vuelta a la oscuridad, en la búsqueda de algo que iluminara el mundo.
+
+---
+
+- Clark.
+- Moore.
+
+Fueron esas las sencillas presentaciones de las dos agentes por primera vez, ya en el exterior de la comisaría, frente a los coches que aguardaban a cruzar las calles para hacer justicia. Se estrecharon las manos y segundos después ya estaba Moore junto a su compañera apoyandose de espaldas contra uno de esos coches.
+
+- Conocemos el caso, ¿verdad?
+- Sí. Esta mañana le he dado la última lectura.
+- Bien. ¿Qué tal si me pones al día? - le propuso Moore, cruzándose de brazos para protegerse del frío, mientras miraba al suelo. - Llevo un tiempo fuera de esto, y necesito arrancar motores.
+
+Su compañera, algo nerviosa, asentía con fuerza, pensando las palabras adecuadas antes de hablar.
+
+- Es un caso que había sido... abandonado. - le explica, recalcando esa última palabra simulando unas comillas con sus dedos. - Ante falta de actividad y urgencia de otros casos, se dejó apartado. Ahora hay una nueva víctima, con pruebas que corresponden con el *modus operandi* de este asesino... dos años después.
+
+Ella se inclina para coger la carpeta que reposa junto a sus pies y toma una página del informe que comenzaban a investigar, mostrando varias líneas que correspondían a nombres y lo que parecían teléfonos de contacto.
+
+- Estos son los contactos que pueden aportar información hasta ahora. Las fotografías de la víctima... mejor cuando subamos al coche. - sugirió.
