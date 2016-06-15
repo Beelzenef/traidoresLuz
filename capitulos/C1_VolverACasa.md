@@ -42,3 +42,16 @@ Su compañera, algo nerviosa, asentía con fuerza, pensando las palabras adecuad
 Ella se inclina para coger la carpeta que reposa junto a sus pies y toma una página del informe que comenzaban a investigar, mostrando varias líneas que correspondían a nombres y lo que parecían teléfonos de contacto.
 
 - Estos son los contactos que pueden aportar información hasta ahora. Las fotografías de la víctima... mejor cuando subamos al coche. - sugirió.
+
+---
+
+Ya en el interior del coche, donde el mundo exterior parecía perder fuerza y también sonido, pudieron al fin comenzar a ver las fotografías. Poco a poco, Clark fue pasando a su compañera las imágenes que parecía seleccionar cuidadosamente. A cada pase, su rostro mostraba la inseguridad propia de alguien que sabía poder estar dañando a otra. Y el rostro de Moore no mostraba otra cosa.
+
+A pesar de su preparación mental y emocional, no parecía haber pasado demasiado tiempo desde que contemplara la última masacre. Sus compañeros de hacía ya años y entre ellos algunos amigos. Todos muertos.
+Viendo esas fotos, volviendo a contemplar lo horrible que era el mundo, volvía a sentir esa ansiedad que amenazaba con no dejarla escapar. Su rostro mostraba el dolor sufrido, avivado por la violencia que se veían en esas fotografías. La frialdad con las que habían sido tomadas, desprovistas de pasión por tener el propósito de informar sobre un asesinato no las hacían menos vívidas.
+
+Suspiró y se las pasó todas tras recogerlas. Creía haber tomado la esencia de aquella sangre derramada. Como si fuera el aliento que necesitaba para comenzar a buscar al asesino y resolver el caso por fin.
+
+> Cuéntame qué pasó. - le pidió, por fin girándose para mirarla.
+
+---
