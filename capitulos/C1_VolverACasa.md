@@ -52,6 +52,10 @@ Viendo esas fotos, volviendo a contemplar lo horrible que era el mundo, volvía 
 
 Suspiró y se las pasó todas tras recogerlas. Creía haber tomado la esencia de aquella sangre derramada. Como si fuera el aliento que necesitaba para comenzar a buscar al asesino y resolver el caso por fin.
 
-> Cuéntame qué pasó. - le pidió, por fin girándose para mirarla.
+- Cuéntame qué pasó. - le pidió, por fin girándose para mirarla.
 
 ---
+
+- Todo pasó muy rápido. Al parecer, la víctima acababa de llegar a casa cuando se vio asaltado en el lugar. Alguien había entrado... creen que por una de las ventanas. Esa información está todavía por determinar. - explicaba Clark con tranquilidad, con los ojos cerrados mientras ponía en orden sus pensamientos y la información que tenía. - La puerta no se vio forzada, por lo que podría ser eso o alguien con llave. Quizás un familiar, una amante... hay que establecer un marco de circunstancias detallado para saber por dónde buscar. Hoy llega su hermano menor, llamado Michael, que acaba de recibir la noticia... así que podemos empezar por aquí.
+
+- Bien. ¿Tienes la dirección? - preguntó, para ser respondida con el documento donde se recogía el punto de partida para la investigación conjunta. - Sigue contandome todo lo que sepas.
